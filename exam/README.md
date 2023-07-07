@@ -17,3 +17,5 @@
 ![image](https://github.com/mireashik/fizika_1sem/assets/123753819/6535868a-1473-4f46-9f4a-281f28ce19b6)
 
 ![image](https://github.com/mireashik/fizika_1sem/assets/123753819/f2c2515e-dfc1-448d-b410-001f1e9c81b9)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/1d79463c-0bd4-4f67-ad30-0da4b15f20d1)
