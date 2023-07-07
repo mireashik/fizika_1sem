@@ -47,3 +47,23 @@
 ![image](https://github.com/mireashik/fizika_1sem/assets/123753819/6e3fb736-5b55-4282-9cf6-bb3f6274cfb2)
 
 ![image](https://github.com/mireashik/fizika_1sem/assets/123753819/f6cac8a7-3fd6-487e-a64f-0b91aae3a820)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/76bd4282-de8b-4951-a922-e2137094ce05)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/f959db3a-99dd-4a9a-9344-fb582b0b9846)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/25b0277e-0167-4959-b608-87a3f6ac8e21)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/f572cd64-5568-4a81-8f40-507b09c21dcd)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/efefde26-65f8-4366-b9d5-d731c8d870db)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/3e725af0-f81c-4350-b67f-46a2746a78ce)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/ca13fc9e-edbe-4cfa-976e-9e65cd8205dd)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/d958111d-5674-4365-9ae3-ec0d312e2eae)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/1672a1fb-7245-42a8-99bb-16c2c6ecb087)
+
+![image](https://github.com/mireashik/fizika_1sem/assets/123753819/b06273c4-a9c0-4780-bba8-5f73ce4d39bb)
